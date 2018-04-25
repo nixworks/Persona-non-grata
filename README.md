@@ -1,1 +1,1 @@
-# Persona-non-grata
+# Persona non grata
